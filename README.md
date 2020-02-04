@@ -2,5 +2,5 @@
 Tips to organizing research
 Zainab 
 Non-Scientist
-Reading and riting
+Reading and writing
 Drive, My Desktop
