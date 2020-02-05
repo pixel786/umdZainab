@@ -1,7 +1,7 @@
 # umdZainab
 Tips to organizing research
 
-Name? Zainab 
+Name: Zainab 
 
 What kind of scientist do you you tell people you are at dinner
 parties? Non-Scientist
